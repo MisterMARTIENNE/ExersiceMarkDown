@@ -1,5 +1,5 @@
 # MARTIENNE ERIC
-![Eric MARTIENNE](https://github.com/MisterMARTIENNE/ExersiceMarkDown.git/photo.jpg)
+![Eric MARTIENNE](https://github.com/MisterMARTIENNE/ExersiceMarkDown/photo.jpg)
 ## FUTUR TECHNICIEN SUPERIEUR SYSTEMES ET RESEAUX
 
 ### PRESENTATION
