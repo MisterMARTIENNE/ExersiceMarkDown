@@ -4,7 +4,7 @@
 
 ### PRESENTATION
 
-Curieux et serviable, après une carrière dans le bâtiment, j’entame une reconversion dans le domaine de l’informatique. A l’aise avec la technologie, je me suis souvent retrouvé à travailler les sujets des télécommunications et des réseaux sans étude particulière. Afin d’assouvir cette appétence, je fais un BTS Services Informatiques aux Organisations en alternance sur 2 ans. Je suis sûr que je pourrais être un bon élément dans votre entreprise.
+Curieux et serviable, après une carrière dans le bâtiment, j’entame une reconversion dans le domaine de l’informatique. A l’aise avec la technologie, je me suis souvent retrouvé à travailler les sujets des télécommunications et des réseaux sans étude particulière. Afin d’assouvir cette appétence, je fais une formation pour être Technicien Supérieur Systémes et Réseaux . Je suis sûr que je pourrais être un bon élément dans votre entreprise.
 
 ### EXPERIENCES PROFESSIONNELLES
 
